@@ -17,8 +17,9 @@ Things you should know before int me ! ::
 
 4 . Do not interact with me when you have an sexualized pony, i'm NOT comfortable around it. ( this is targeted to SOME indonesian ppl. )
 
-5 . i dont know more, srry. 
 
+
+<img width="1280" height="168" alt="tumblr_163dccc1291c85231728563450bd11b8_a84ca881_1280" src="https://github.com/user-attachments/assets/a619f321-d337-4b34-b9fd-5bf8b2ef4b3c" />
 
 
 <img width="1696" height="321" alt="hlcl89" src="https://github.com/user-attachments/assets/a77ed802-5b14-4fd5-aa0a-7f45bc30148e" />
